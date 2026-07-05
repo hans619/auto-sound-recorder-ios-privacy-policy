@@ -1,0 +1,1 @@
+# auto-sound-recorder-ios-privacy-policy
